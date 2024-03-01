@@ -11,7 +11,7 @@ I'm Michael, transitioning from film & TV editing to the dynamic world of cybers
 ___
 🛡 **Why Cybersecurity?**
 - Passionate about safeguarding digital spaces and protecting people's data
-- Eager to apply my analystical skills from editing to solving security challenges
+- Eager to apply my analytical skills from editing to solving security challenges
 - Love learning
 
 🚀 **Outside of the Cyber World:**
